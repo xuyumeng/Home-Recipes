@@ -1,4 +1,6 @@
-# ** Soup Noodle Recipe**
+# Soup Noodle Recipe
+
+**Soup Base** + **Noodles** + **Topping**
 
 ![image](6F3A1030.JPG)
 
