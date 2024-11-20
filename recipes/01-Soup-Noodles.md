@@ -22,7 +22,7 @@
    - Carefully pour the hot oil over the chopped ingredients in the bowl, a little at a time.  
    - Mix with a spoon between each pour to ensure even heating and flavor extraction.  
 4. **Season the base**:  
-   Add 1 tsp sugar, 1 tsp salt, 1 tbsp soy sauce, and a few drops of sesame oil (optional). Stir well.
+   Add 1 tsp sugar, 1 tsp salt, 1 tbsp soy sauce, and a few drops of sesame oil (optional). Stir well. You can also leave this step when you eat it, to minimize the water in the lunchbox.
 
 ---
 
@@ -67,4 +67,4 @@
 3. Add the toppings
 
 ## **When you eat**
-Preheat with microwave, add some hot water and little soy bean sauce, mix!
+Preheat with microwave, add some hot water, mix!
