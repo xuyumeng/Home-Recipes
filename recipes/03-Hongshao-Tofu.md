@@ -27,7 +27,7 @@ Prepare Ingredients:
 
 4. Mix the soybean sauce, suger, salt, and thirteen-spices with 2-3 tbsp of water in a bowl
 
-5. Put the tofu in a bowl and pour the beaten egg in the bowl. Let each tofu wrapped with egg mixture
+5. Put the tofu in a bowl and pour the beaten egg in the bowl. Let each tofu slice wrapped with egg mixture
 
 Start cooking:
 
@@ -35,15 +35,12 @@ Start cooking:
 ![Image1](images/02/IMG_20250323_194714.jpg)
 
 7. Once the tofu becomes golden, transfer it to a plate or bowl
-
 ![Image1](images/02/IMG_20250323_195050.jpg)
 
 8. Add a little oil in the pan to fry the chopped chilli, onion and garlic
-
 ![Image1](images/02/IMG_20250323_195403.jpg)
 
 9. Transfer the tofu to the pan, and pour the sauce for stewing until the sauce concentrated
-
 ![Image1](images/02/IMG_20250323_200100.jpg)
 
 
