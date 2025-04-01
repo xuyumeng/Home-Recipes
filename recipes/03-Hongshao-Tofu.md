@@ -2,7 +2,7 @@
 
 ## Ingredients:
 
- - Soft Tofu (other tofu also works)
+ - Tofu
  - 2 eggs
  - Chilli
  - Onion
