@@ -10,7 +10,7 @@
  - 2 tbsp soybean sauce
  - 1 tsp suger
  - 1 tsp salt
- - 1 tsp Thirteen-spices（十三香）
+ - 1 tsp Thirteen-spices（十三香）(optional)
 
 ## Instructions:
 
