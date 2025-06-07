@@ -53,6 +53,7 @@ Instructions:
 1.	After the infused oil mixture has rested, add all the ingredients above.
 2.	Stir well to combine.
 
+![image](images/05/Img-03.jpg)
 ⸻
 
 Step 4: Assemble the Dish
