@@ -19,7 +19,7 @@ Instructions:
 
 Note: Starting with cold water and simmering slowly helps cook the meat evenly, preventing the exterior from sealing too early and trapping blood inside.
 
-⸻
+-------------
 
 Step 2: Make the Sauce
 
@@ -37,7 +37,7 @@ Instructions:
 2.	Heat the oil until it starts to smoke.
 3.	Carefully pour the hot oil over the ingredients in the bowl. Stir gently, then cover the bowl with a lid or aluminum foil. Let it sit for 10 minutes to allow the flavors to infuse.
 
-⸻
+-------------
 
 Step 3: Finish the Sauce
 
