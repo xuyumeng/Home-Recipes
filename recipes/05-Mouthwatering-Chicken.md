@@ -56,7 +56,8 @@ Instructions:
 2.	Stir well to combine.
 
 ![image](images/05/Img-03.jpg)
-⸻
+
+-------------
 
 Step 4: Assemble the Dish
 -	Pour the finished sauce over the chopped chicken.
