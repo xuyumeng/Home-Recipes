@@ -32,6 +32,8 @@ Ingredients:
 -	1–2 tbsp fine-chopped leek (white part) or spring onion
 -	At least 4 tbsp sunflower oil (or other neutral oil)
 
+![image](images/05/Img-02.jpg)
+
 Instructions:
 1.	Add all the ingredients above into a heatproof bowl.
 2.	Heat the oil until it starts to smoke.
