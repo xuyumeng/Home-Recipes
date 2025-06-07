@@ -1,3 +1,5 @@
+![image](images/05/Img-01.jpg)
+
 Step 1: Prepare the Boiled Chicken
 
 This step ensures the chicken is fully cooked and removes any unpleasant flavors caused by blood in the meat.
