@@ -9,7 +9,7 @@ This recipe combines **aromatic Chinese chili oil** and a bold **BBQ glaze** use
 # Part 1 — 🌶️ Homemade Aromatic Chili Oil
 
 <figure>
-  <img src="./images/07/IMG_0039.jpg" alt="Preparing aromatic chili oil" style="width:60%;max-width:480px;">
+  <img src="./images/07/IMG_0039.JPG" alt="Preparing aromatic chili oil" style="width:60%;max-width:480px;">
   <figcaption>Figure 1 — Preparing the aromatic chili oil.</figcaption>
 </figure>
 
@@ -77,7 +77,7 @@ Let cool completely before using.
 # Part 2 — 🍢 Street BBQ Skewer Glaze
 
 <figure>
-  <img src="./images/07/IMG_0040.jpg" alt="Finished BBQ skewer glaze" style="width:60%;max-width:480px;">
+  <img src="./images/07/IMG_0040.JPG" alt="Finished BBQ skewer glaze" style="width:60%;max-width:480px;">
   <figcaption>Figure 2 — Finished street-style BBQ skewer glaze.</figcaption>
 </figure>
 
