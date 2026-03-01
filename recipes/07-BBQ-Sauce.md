@@ -90,7 +90,6 @@ Let cool completely before using.
 - ½ tbsp cumin powder  
 - ½ tbsp ground Sichuan pepper  
 - 1 tbsp toasted sesame seeds  
-- ½ tbsp mala sauce (optional)  
 - ½ tbsp ketchup  
 - **1 tbsp homemade chili oil (from above)**
 
